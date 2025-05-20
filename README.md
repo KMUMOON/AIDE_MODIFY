@@ -4,3 +4,5 @@
 더 궁금하면 연락주세요 hsmoon@kookmin.ac.kr
 
 취미 추가
+
+특기 추가
